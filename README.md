@@ -22,7 +22,7 @@ Let's Connect!
 
 📧 Email: mohittandon026@gmail.com
 
-🐦 Twitter: @yourtwitterhandle
+🐦 Twitter: @MohitTa80845742
 
 I'm always open to new opportunities and collaborations, so feel free to reach out! Let's explore the fascinating world of data together. 🚀
 
